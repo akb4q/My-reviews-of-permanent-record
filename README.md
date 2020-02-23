@@ -16,7 +16,9 @@ vv-f 2020-2-23
 像他这样的人至少给了我希望，但他也表明，我们目前拥有的自由已被视为理所当然（现在我才认为是完全不够的）。 民主，言论自由，隐私权不仅是通过无数的死亡换来的，而且还需要为继续争取和维持而不断地努力。
 
 # 读完
-好吧，在读的时候会想怎么没有新的爆料，看完第一章节再往后我才意识到这比我原来想的值的更多，对于一个掌握着美国情报中最深和最黑暗的秘密的人，他详细介绍的是他知道这些骇人听闻的过程。因为直接曝光想必是一个很糟糕的做法，置更多辛勤工作，爱国的公务员于生命危险。我相信，也是现实，政府一定会隐藏一些信息。即使是再透明的民主国家，也可能允许存在情报局或间谍人员。我觉得在泄密和维权之前找到一个平衡点，也是他想告诉我们的，就像Snowden说的"To give an account of my life while protecting the privacy of my loved ones and not exploding legitimate government secrets is no simple task, but it is my task. Between those two responsibilities — that is where to find me."在保护我家人和不泄漏政府机密的同时讲述我的生活是一件困难的事，而他找到了，需要的并不是再曝光了。
+好吧，在读的时候会想怎么没有新的爆料，看完第一章节再往后我才意识到这比我原来想的值的更多，对于一个掌握着美国情报中最深和最黑暗的秘密的人，他详细介绍的是他知道这些骇人听闻的过程。因为直接曝光想必是一个很糟糕的做法，置更多辛勤工作，爱国的公务员于生命危险。我相信，也是现实，政府一定会隐藏一些信息。即使是再透明的民主国家，也可能允许存在情报局或间谍人员。
+
+我觉得在泄密和维权之前找到一个平衡点，也是他想告诉我们的，就像Snowden说的"To give an account of my life while protecting the privacy of my loved ones and not exploding legitimate government secrets is no simple task, but it is my task. Between those two responsibilities — that is where to find me."在保护我家人和不泄漏政府机密的同时讲述我的生活是一件困难的事，而他找到了，需要的并不是再曝光了。
 
 
 
